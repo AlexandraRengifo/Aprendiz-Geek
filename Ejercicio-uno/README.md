@@ -1,0 +1,1 @@
+En este programa se vio las primeras clases, del entrenamiento de aprendices geek 
